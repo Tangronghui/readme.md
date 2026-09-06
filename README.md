@@ -98,7 +98,7 @@ tial-Temporal Analysis + Ensemble Modeling**
 
 ## 📬 Let's Connect
 
-- **Email**: [your-email@example.com](mailto:your-email@example.com)
+- **Email**: [liciayyy@outlook.com](mailto:liciayyy@outlook.com)
 - **LinkedIn**: [linkedin.com/in/your-profile](https://linkedin.com/in/your-profile)
 - **Location**: Jiangxi, China
 
